@@ -1,2 +1,2 @@
 # demon-nuker
-HUUUUUUUUUUUUU IDK
+im am not responsibl to any hacking that happens\
